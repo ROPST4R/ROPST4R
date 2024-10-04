@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @ROPST4R
+- 👀 I’m interested in cats and gastronomy
+- 🌱 I’m currently learning 3d modeling or drawing
+- 💞️ I’m looking to collaborate on a game that i want to create with my friend
+- 😄 Pronouns: idk
+- ⚡ Fun fact: i like buying ind temu like inversion, bc then I sell what i made with the products.
